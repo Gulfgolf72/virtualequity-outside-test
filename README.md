@@ -1,6 +1,6 @@
 # Embedded Content Page
 
-Absolutely New Instruction Set Next Required Action How Many characters Wide ?
+Absolutely New Instruction Set Next Required Action How Many Characters Wide ?
 
 **Live Page:** https://Gulfgolf72.github.io/virtualequity-outside-test/
 
