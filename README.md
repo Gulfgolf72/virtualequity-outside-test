@@ -1,6 +1,6 @@
 # Embedded Content Page
 
-This page displays embedded c8ntent from: https://virtualequity.co.uk/outside-test
+Absolutely New Instruction Set Next Required Action How Many characters Wide ?
 
 **Live Page:** https://Gulfgolf72.github.io/virtualequity-outside-test/
 
